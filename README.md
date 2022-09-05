@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ssssshhhhiiitt
 - 👀 I’m interested in Python
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on with any company, who want to search, juniors 
+- 💞️ I’m looking to collaborate on with any company, who want to search juniors, i always can be employee
 - 📫 How to reach me? You can write me on my gmail: markpav07@gmail.com
 
 <!---
